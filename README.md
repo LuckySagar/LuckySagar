@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning JavaScript and its Framework
 - 💞️ I’m looking to collaborate on instagram 
-- 📫 How to reach me : luckykumarmehta142003@gmail.com
+- 📫 How to reach me : luckykumarmehta14@gmail.com
 - 😄 Pronouns: lucky
 - ⚡ Fun fact: i also do content creation
 
